@@ -17,6 +17,11 @@
 
 ♥ I use kys/kms jokes that shouldnt be taken serisourly. My humor can come off suggestive but i do know how to filter myself when talking to different people.
 
-♥ 
+♥ I am offtab or AFK most of the times, if i dont respond i am not ignoring you i just dont see your message so please whisper me instead.
 --
 
+**INTERACT**
+
+♥ Anyone can interact but if you want to make the conversation less awkward we could talk about my interest. I have a lot and itd be a hassle to list them all down so here are the ones i LOVE right now.
+
+Alien stage, mouthwashing, black phone, sonic the hedgechog, epic the musical, identity v, danganronpa, Jujutsu kaisen, creepypasta, sally face, demon slayer, supernatural (getting into it)
