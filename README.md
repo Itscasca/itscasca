@@ -18,6 +18,7 @@
 ♥ I use kys/kms jokes that shouldnt be taken serisourly. My humor can come off suggestive but i do know how to filter myself when talking to different people.
 
 ♥ I am offtab or AFK most of the times, if i dont respond i am not ignoring you i just dont see your message so please whisper me instead.
+
 --
 
 **INTERACT**
