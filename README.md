@@ -11,8 +11,11 @@
 --
 **BFYI**
 ♥ I am introverted so sorry if interacting with me feels awkward the more i get to know you the more im comfortable talking to you.
+
 ♥ 13+ When **Befriending** Me. If you are below that age small interactions are fine but if you want to genuinelly get to know me be that age or above.
+
 ♥ I use kys/kms jokes that shouldnt be taken serisourly. My humor can come off suggestive but i do know how to filter myself when talking to different people.
+
 ♥ 
 --
 
