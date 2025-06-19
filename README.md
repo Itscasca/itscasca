@@ -7,8 +7,6 @@
 
 
 
-<sub> ~~^ i couldnt find the artist frowns~~ </sub>
-
-### if you are friends with any of the following people, please block me:
+### PONY TOWN INFORMATION
 
 
