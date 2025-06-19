@@ -11,13 +11,13 @@
 --
 **BFYI**
 
-♥ I am introverted so sorry if interacting with me feels awkward the more i get to know you the more im comfortable talking to you.
+♥ I'm introverted, so sorry if I come off a little awkward at first. The more I get to know you, the more comfortable I am talking.
 
 ♥ 13+ When **Befriending** Me. If you are below that age small interactions are fine but if you want to genuinelly get to know me be that age or above.
 
-♥ I use kys/kms jokes that shouldnt be taken serisourly. My humor can come off suggestive but i do know how to filter myself when talking to different people.
+♥ I use jokes like "kys" or "kms," but they’re never meant to be taken seriously. My humor can be a bit suggestive at times, but I know how to filter myself depending on who I’m talking to
 
-♥ I am offtab or AFK most of the times. If i dont respond i am not ignoring you i just dont see your message so please whisper me instead.
+♥ I'm often off-tab or AFK, so if I don’t respond, I’m not ignoring you I probably just didn’t see your message. Please whisper me instead
 
 --
 
@@ -40,7 +40,7 @@ Alien stage, mouthwashing, black phone, sonic the hedgechog, epic the musical, i
 
 **NO**
 
-♥ Convering me
+♥ Covering me on purpose
 
 ♥ Being apart of the basic dni criteria (Homophobes, transphobes, basic stuff like that.)
 
