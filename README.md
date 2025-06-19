@@ -25,11 +25,23 @@
 
 ♥ Anyone can interact but if you want to make the conversation less awkward we could talk about my interest. I have a lot and it'd be a hassle to list them all down so here are the ones i LOVE right now.
 
-Alien stage, mouthwashing, black phone, sonic the hedgechog, epic the musical, identity v, danganronpa, yttd, Jujutsu kaisen, creepypasta, sally face, demon slayer, supernatural (getting into it), mystic messenger
+Alien stage, mouthwashing, black phone, sonic the hedgechog, epic the musical, identity v, danganronpa, yttd, Jujutsu kaisen, creepypasta, sally face, demon slayer, supernatural (getting into it), mystic messenger, spider verse
 
 
-**PONY TOWN YES'S AND DONT'S**
+**PONY TOWN YES'S AND NO'S**
 
-♥ (YES) interact, cuddle + hug
-♥ (NO) Cover me on purpose
-♥ (YES) 
+**YES**
+
+♥ Cuddle + hugs
+
+♥ Interacting
+
+♥ Shipping! I am a multishipper so shipping is fine unless problematic.
+
+**NO**
+
+♥ Convering me
+
+♥ Being apart of the basic dni criteria (Homophobes, transphobes, basic stuff like that.)
+
+
