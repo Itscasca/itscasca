@@ -36,7 +36,7 @@ Alien stage, mouthwashing, black phone, sonic the hedgechog, epic the musical, i
 
 ♥ Interacting
 
-♥ Shipping! I am a multishipper so shipping is fine unless problematic.
+♥ Shipping! I am a multishipper so shipping is fine unless problematic
 
 **NO**
 
