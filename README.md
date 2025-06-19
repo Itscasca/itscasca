@@ -10,6 +10,7 @@
 ### PONY TOWN INFORMATION
 --
 **BFYI**
+
 ♥ I am introverted so sorry if interacting with me feels awkward the more i get to know you the more im comfortable talking to you.
 
 ♥ 13+ When **Befriending** Me. If you are below that age small interactions are fine but if you want to genuinelly get to know me be that age or above.
