@@ -25,7 +25,7 @@
 
 ♥ Anyone can interact but if you want to make the conversation less awkward we could talk about my interest. I have a lot and it'd be a hassle to list them all down so here are the ones i LOVE right now.
 
-Alien stage, mouthwashing, black phone, sonic the hedgechog, epic the musical, identity v, danganronpa, yttd, Jujutsu kaisen, creepypasta, sally face, demon slayer, supernatural (getting into it), mystic messenger, spider verse
+Alien stage, mouthwashing, black phone, sonic the hedgechog, epic the musical, identity v, danganronpa, yttd, Jujutsu kaisen, creepypasta, sally face, demon slayer, supernatural (getting into it), mystic messenger, spider verse, ace attorney
 
 
 **PONY TOWN YES'S AND NO'S**
