@@ -45,23 +45,6 @@ Alien stage, mouthwashing, black phone, sonic the hedgechog, epic the musical, i
 
 ♥ Being apart of the basic dni criteria (Homophobes, transphobes, basic stuff like that.)
 
-**SHIPPING INFORMATION**
-
-__danganronpa 1__
-Makoto x togami
-Toko x komaru
-Kyoko x celestia
-Ishimaru x mondo
-Aoi x Sakura
-Makoto x kyoko
-
-__danganronpa 2__
-Hajime x nagio
-Hajime x chiaki
-Ibuki x mikan
-Gundham x soda
-akane x nekomaru
-Fuyuhiko x 
 
 
 
