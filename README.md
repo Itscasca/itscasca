@@ -13,7 +13,7 @@
 --
 **BFYI**
 
-♥ I'm introverted, so sorry if I come off a little awkward at first. The more I get to know you, the more comfortable I am talking
+♥ EEven though I’m introverted, PLEASE feel free to talk to me! Just a heads-up I might come off a little awkward at first
 
 ♥ 13+ When **Befriending** Me. If you are below that age small interactions are fine but if you want to genuinelly get to know me be that age or above
 
