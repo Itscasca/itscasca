@@ -20,9 +20,6 @@
 --
 **BFYI**
 
-
-♥ 13+ When **Befriending** Me. If you are below that age small interactions are fine but if you want to genuinelly get to know me be that age or above
-
 ♥ I use jokes like "kys" or "kms," but they’re never meant to be taken seriously. My humor can be a bit suggestive at times, but I know how to filter myself depending on who I’m talking to
 
 ♥ I'm often off-tab or AFK, so if I don’t respond, I’m not ignoring you I probably just didn’t see your message. Please whisper me instead
