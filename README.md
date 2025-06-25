@@ -9,11 +9,17 @@
 ㅤㅤI love horror and physiological horror
 ㅤI like art, painting and crocheting
 
-### PONY TOWN INFORMATION
+### GENERAL INFORMATION
+♥ Even though im introverted PLEASE feel free to talk to me !! I use pony town to make friends so dont be afraid
+
+♥ Taking inspo from me is fine HEAVY inspo is a no. So with copying my skins ( burn )  
+
+♥ I am usually at the danganronpa, mouthwashing, sonic or jjk area
+
+
 --
 **BFYI**
 
-♥ Even though I’m introverted, PLEASE feel free to talk to me! Just a heads-up I might come off a little awkward at first
 
 ♥ 13+ When **Befriending** Me. If you are below that age small interactions are fine but if you want to genuinelly get to know me be that age or above
 
