@@ -2,7 +2,7 @@
 ![](rw2.gif)
 </details>
 
-![image]([https://i.pinimg.com/736x/14/53/22/1453220913abe836a9e5788bb4ddfc56.jpg)
+![image](https://i.pinimg.com/736x/4c/73/4e/4c734e4062816a3cbbae4246dc4996a7.jpg)
 
 
 ㅤCORI, INTP
