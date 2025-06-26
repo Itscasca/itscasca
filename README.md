@@ -2,7 +2,7 @@
 ![](rw2.gif)
 </details>
 
-![image](https://i.pinimg.com/736x/14/53/22/1453220913abe836a9e5788bb4ddfc56.jpg)
+![image]([https://i.pinimg.com/736x/14/53/22/1453220913abe836a9e5788bb4ddfc56.jpg)
 
 
 ㅤCORI, INTP
@@ -24,13 +24,15 @@
 
 ♥ I'm often off-tab or AFK, so if I don’t respond, I’m not ignoring you I probably just didn’t see your message. Please whisper me instead
 
+♥ My social battery is low but i do try to be active with my responses
+
 --
 
 **INTERACT**
 
 ♥ Anyone can interact but if you want to make the conversation less awkward we could talk about my interest. I have a lot and it'd be a hassle to list them all down so here are the ones i LOVE right now.
 
-Alien stage, mouthwashing, black phone, sonic the hedgechog, epic the musical, identity v, danganronpa, yttd, Jujutsu kaisen, creepypasta, sally face, demon slayer, supernatural (getting into it), mystic messenger, spider verse, ace attorney
+Alien stage, mouthwashing, black phone, sonic the hedgechog, epic the musical, identity v, danganronpa,promise of hope, yttd, Jujutsu kaisen, creepypasta, sally face, demon slayer, supernatural (getting into it), mystic messenger, spider verse, ace attorney
 
 
 **PONY TOWN YES'S AND NO'S**
@@ -49,7 +51,6 @@ Alien stage, mouthwashing, black phone, sonic the hedgechog, epic the musical, i
 ♥ Covering me on purpose
 
 ♥ Being apart of the basic dni criteria (Homophobes, transphobes, basic stuff like that.)
-
 
 
 
