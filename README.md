@@ -1,5 +1,4 @@
-![](https://64.media.tumblr.com/30e2aeae6f2fb7e578cc54708b296af6/34a7d5a77e5d4834-ae/s640x960/fe664898a2ede8b0a868ddd0a852975752f3090f.pnj)           ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎⠀⠀
-
+![](https://media.discordapp.net/attachments/1464683697448943679/1465001217242693632/Untitled58_20260125091136.png?ex=69778434&is=697632b4&hm=8db9571eaafc41acddc3cd5a8b90e8958f2041d8de18a48b497c55823c875b7e&=&format=webp&quality=lossless)
 
 ⠀⠀⠀⠀;⠀⠀⠀cori/ncknames all prns
 ⠀⠀⠀⠀i am shy and⠀introverted⠀;  wont talk much!⠀⠀⠀⠀⠀Besides that i love making friends
