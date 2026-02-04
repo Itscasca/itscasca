@@ -36,4 +36,4 @@
 
  </details>
 
-                ![](https://media.discordapp.net/attachments/1464683697448943679/1465001217242693632/Untitled58_20260125091136.png?ex=69778434&is=697632b4&hm=8db9571eaafc41acddc3cd5a8b90e8958f2041d8de18a48b497c55823c875b7e&=&format=webp&quality=lossless)
+                ![](https://media.discordapp.net/attachments/1464683697448943679/1468409248353619978/Adobe_Express_-_file.png?ex=6983ea2e&is=698298ae&hm=487164565a3e2667011f4df3a387c12286e29381e196cdc7fec661a45fc180ed&=&format=webp&quality=lossless&width=981&height=1409)
