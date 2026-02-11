@@ -15,8 +15,8 @@
 
    <summary>${\color{#DE553A}DNI}$ ${\color{#DE553A}INFO}$</summary>
  
-  ### DNI
-𝐣𝐮𝐬𝐭 𝐝𝐨𝐧𝐭 𝐛𝐞 𝐯𝐞𝐫𝐲 𝐰𝐞𝐢𝐫𝐝 𝐭𝐨𝐰𝐚𝐫𝐝𝐬 𝐦𝐞
+  ### INTEREST
+I have a LOAD of interest but here is some of them i currently really love atm Greek mythology, dinosaurs, horror/psychological horror, jjk, demonslayer, gachiakuta, epic the musical, mouthwashing, no im not a human, golden kamuy, beastars, invincible, hotline miami, call of duty, dispatch etc etc...
 
 
 
