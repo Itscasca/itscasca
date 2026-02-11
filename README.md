@@ -13,7 +13,7 @@
 
  <details>
 
-   <summary>${\color{#DE553A}DNI}$ ${\color{#DE553A}INFO}$</summary>
+   <summary>${\color{#DE553A}INTEREST}$ ${\color{#DE553A}INFO}$</summary>
  
   ### INTEREST
 I have a LOAD of interest but here is some of them i currently really love atm Greek mythology, dinosaurs, horror/psychological horror, jjk, demonslayer, gachiakuta, epic the musical, mouthwashing, no im not a human, golden kamuy, beastars, invincible, hotline miami, call of duty, dispatch etc etc...
